@@ -1,5 +1,5 @@
 ## *Não se Sinta Bem Vindo ☠️*
 
-  MY Is Paulo and Fuck You
+  MY Neme Is Paulo and Fuck You
 
   • Estou Infelizmente no [Alura](https://www.alura.com.br)
