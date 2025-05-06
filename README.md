@@ -2,4 +2,4 @@
 
   MY Is Paulo and Fuck You
 
-  • Estou Infelizmente no Alura [Alura](https://www.alura.com.br)
+  • Estou Infelizmente no [Alura](https://www.alura.com.br)
