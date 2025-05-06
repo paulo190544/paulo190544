@@ -1,4 +1,4 @@
-## *Não se Sinta Bem Vindo ☠️*
+## *Não Se Sinta Bem Vindo ☠️*
 
 My name is Paulo and Fuck You 🇧🇷🇺🇸
 
