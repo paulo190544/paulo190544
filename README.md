@@ -8,4 +8,5 @@
 
   • Utiliso esse espaço para minha organizaçãoé compartilhamento dos meus projetos desenvolvidos
 
- ![paul-mccartney-the-beatles](https://github.com/user-attachments/assets/dfd04a16-5555-4268-8d29-022b2a5b205a)
+![pack-of](https://github.com/user-attachments/assets/004ff697-03a4-426b-bd56-2801a47a74e6)
+
