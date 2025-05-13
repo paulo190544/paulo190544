@@ -10,3 +10,4 @@
 
 ![pack-of](https://github.com/user-attachments/assets/004ff697-03a4-426b-bd56-2801a47a74e6)
 
+![django-gun-thinkin](https://github.com/user-attachments/assets/57f0d1fe-2fe8-470e-85f5-bb35de6c11e0)
